@@ -35,3 +35,9 @@ Benefit to
 ### forget
 Forget to do  
 Forget doing 忘记做过的
+
+### 远/近
+be far from  
+be near to
+
+
