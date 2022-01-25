@@ -1,0 +1,12 @@
+### Saying Sorry and the Appropriate Way to Respond
+- **I've got some bad news** about the bike you lent me..
+- What's that?
+- I fell on the way to school, and your bike got scratched. I'm really sorry.
+- **Don't worry about it**. It's not new. It already has some scratches. Did you get hurt?
+- No, thanks.
+- That's the most important thing.
+- **It's kind of you to say**. I feel a little stupid.
+- **Forget about it**.
+- When you lent me the bike it looked brand-new almost, anyway.
+- Maybe, bue really I've fallen a couple of times and it's been hit once or twice as well.
+- **I appreciate that**. Thank you.
